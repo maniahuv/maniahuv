@@ -4,7 +4,7 @@
 - 💞️ o có
 - 📫 nam.vh225750@sis.hust.edu.vn
 - 😄 một nụ cười bằng mười thang thuốc bổ
-- ⚡ Fun fact: my instagram ac is _kymchinam
+- ⚡ Fun fact: my instagram account is _kymchinam
 
 <!---
 maniahuv/maniahuv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
